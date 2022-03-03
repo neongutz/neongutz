@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @neongutz
+- 👀 I’m interested in my cats, books, plants, mitksi, twice, etc.
+- 🌱 I’m currently learning how to speak/write french, spanish and korean
+- I'm just here for fun!~
